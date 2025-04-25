@@ -2,7 +2,7 @@
 - 👀 I’m interested in playing Online Survival games
 
 - 🌱 I’m currently learning video editing and coding[backend]
-- 📫 How to reach me [telegram](https://telegram.me/xpvishal)
+
 
 
 - 😄 Pronouns: noooow
